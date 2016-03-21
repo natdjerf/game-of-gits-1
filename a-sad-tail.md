@@ -6,4 +6,6 @@ My dream is that Ned became lord of the kingdom and protector of the realm.
 
 Joffrey Baratheon
 
-IS THE WORST. And dies. 
+IS THE WORST. And dies.
+
+Yep. Still dead. 
